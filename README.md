@@ -1,5 +1,6 @@
 # Hello, I'm Pushkin Dugam 👋
-![Alt Text](https://th.bing.com/th/id/OIP.4tPOEuRs8y0BkKPUGq7OCAHaE8?pid=ImgDet&w=192&h=143.79746835443038&c=7&dpr=1.5)
+![Business GIF](https://1.bp.blogspot.com/-2cs_zSJDcgQ/XvtIexBpY8I/AAAAAAAAV8s/ZEEJ9grPFk4EzGVMRSIsngr9w2EIgTK9QCK4BGAsYHg/s900/Business.gif)
+
 
 
 
