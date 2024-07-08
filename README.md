@@ -1,2 +1,1 @@
-# PUSHKIN
-INTRO
+# Hello, I'm Pushkin Dugam 👋
