@@ -1,4 +1,5 @@
 # Hello, I'm Pushkin Dugam 👋
-![Alt Text](https://cdn.dribbble.com/users/2131993/screenshots/4948736/media/45dceb640723d72436c427add7966cf8.gif)
+![Alt Text](https://1.bp.blogspot.com/-2cs_zSJDcgQ/XvtIexBpY8I/AAAAAAAAV8s/ZEEJ9grPFk4EzGVMRSIsngr9w2EIgTK9QCK4BGAsYHg/s900/Business.gif)
+
 
 
